@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on open-source projects
 - 📫 You can reach me on IG @marcus__duraes
 
-![alt text](https://c.tenor.com/GfSX-u7VGM4AAAAC/coding.gif)
+![gif](https://c.tenor.com/GfSX-u7VGM4AAAAC/coding.gif)
